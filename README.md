@@ -1,4 +1,5 @@
-![ロゴ](https://github.com/user-attachments/assets/9b5a8a8a-bb76-4d4a-b176-63f8aaa5fa1e)
+![img_1746544809](https://github.com/user-attachments/assets/dcd0b8b4-1112-4d1d-9e2b-44d8f7d412fb)
+
 
 
 # 自己紹介
